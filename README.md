@@ -13,3 +13,8 @@ References:
 3.  Finally, the article that started it all for me, way back in the early nineties: The Mountains of PI by Richard Preston, published in the New Yorker ( https://www.newyorker.com/magazine/1992/03/02/the-mountains-of-pi ).
 
 
+![newplot (2)](https://github.com/user-attachments/assets/1857a444-6c41-4df3-8644-b7e2f77dd6d4)
+![newplot (1)](https://github.com/user-attachments/assets/f014640d-1ee4-4716-b0a2-d959f6329a46)
+![newplot (3)](https://github.com/user-attachments/assets/956fb2c8-52c2-4c18-945a-b02fd87c0bf4)
+![newplot (4)](https://github.com/user-attachments/assets/9129577b-6c2d-41f0-a40f-5820333c43ba)
+![newplot (5)](https://github.com/user-attachments/assets/9322d4e6-7074-4dcb-a934-17d3c3b348ee)
